@@ -1,4 +1,4 @@
-### Hi there, I´m Claudia Morales. 👩💻
+### Hi there, I'm Claudia Morales. 👩💻
 
 I am a Front-End developer and English as a second language speaker in love with the tech world and enthusiastic about learning new things constantly.
 
